@@ -7,7 +7,7 @@
 * https://wlo.link/@recriandogames
  
 ### 😀 Vídeo tutorial:
-* 
+* https://www.youtube.com/watch?v=gTVYBkI9ka0&list=PLSW3Hu9BLJUykOUMQevciRSAYURWCFX9P
 
 ### ☕ Faça parte das nossas redes sociais e comunidade no Discord: 
 * https://linktr.ee/recriandogames
