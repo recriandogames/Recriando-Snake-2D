@@ -6,7 +6,7 @@
 ## Meus cursos na Udemy - Cupons de desconto no link abaixo:
 * https://wlo.link/@recriandogames
  
-### 😀 Vídeo tutorial:
+### 😀 Playlist no Youtube:
 * https://www.youtube.com/watch?v=gTVYBkI9ka0&list=PLSW3Hu9BLJUykOUMQevciRSAYURWCFX9P
 
 ### ☕ Faça parte das nossas redes sociais e comunidade no Discord: 
